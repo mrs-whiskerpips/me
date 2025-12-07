@@ -1,4 +1,5 @@
-![1000002185](https://github.com/user-attachments/assets/49b43c9d-950d-40b6-85d5-23a5869939d4)
+![1000002186](https://github.com/user-attachments/assets/895931a4-5d42-4b2d-b28d-0f7182eeb599)
+
 自分  .  !!
 
 ﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋
@@ -20,4 +21,5 @@ i am mainly with my partner, "gavins toe stroker" the astro cosplayer
 
 
 
-![1000002183](https://github.com/user-attachments/assets/3dd51bc0-0258-45ee-bc0e-a95b82f5eb98)
+![1000002188](https://github.com/user-attachments/assets/41a96262-a1b8-4b6e-b65f-a22350a5825f)
+
