@@ -1,5 +1,7 @@
 ![1000002183](https://github.com/user-attachments/assets/14d533d9-9bb2-4261-be6c-55f24688cae5)
 
+<img width="600" height="50" alt="1000002193" src="https://github.com/user-attachments/assets/43b911fb-fb44-4142-b58d-cc9cfca55c39" />
+
 
 自分  .  !!
 
